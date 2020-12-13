@@ -1,0 +1,2 @@
+# s-dd-ka
+AbubekirsıdıkınSıkıdı
